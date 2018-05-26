@@ -1,1 +1,1 @@
-# might-boosh
+# mighty-boosh
